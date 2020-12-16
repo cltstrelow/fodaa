@@ -4,7 +4,7 @@ AATA
 Ryan enviou Hoje às 16:54
 burricea
 Você enviou Hoje às 16:54
-serumanbe32o
+serumanbe32of
 Você enviou Hoje às 16:55
 kkk
 
@@ -23,3 +23,4 @@ isso diae o trello pra organizar as coisa q tem q fazer as coisa sendo feita e a
 Ryan enviou Hoje às 17:07
 vou criar conta trello dps que eu rangar
 Você enviou Hoje às 17:07
+tuk
